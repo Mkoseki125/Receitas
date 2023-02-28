@@ -15,3 +15,8 @@
 - 1 tomate sem sementes picado
 - 1 cenoura pequena picada
 - orégano a gosto
+
+#### Modo de Preparo
+- Em uma panela de pressão, coloque o óleo junte a cebola, alho e refogue bem.
+- Acrescente a carne frite por 5 minutos mexendo bem, depois coloque o tempero em pó sabor umami (opcional), tomate, pimentão, massa de tomate, cenoura e a seguir acrescente a água orégano.
+- Deixe cozinhar por 30 minutos contando o inicio da fervura, assim que a carne estiver cozida retire do fogo, misture a salsinha e sirva em seguida com arroz branco.
