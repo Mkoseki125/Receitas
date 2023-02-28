@@ -14,4 +14,5 @@
 
 - Panqueca de carne moída :meat_on_bone:
 
+- Salada de Verão
   
